@@ -1,0 +1,1 @@
+Creatinine is in everyone's bloodstream. It’s a waste product that comes from the normal wear and tear on your muscles and passes through the kidneys to be filtered and excreted in urine. Low creatinine clearance levels can indicate serious kidney damage, while elevated levels signify possible kidney disease or impaired kidney function.
